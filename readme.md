@@ -7,5 +7,5 @@
 - Gave me an idea to create a website :3
 
 
-##### ZayneDrift
+##### Zaynedrift
 -  Made the whole [Spanish Translation](https://mstrv.pl/esp) (tysm :3)
